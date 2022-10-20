@@ -365,4 +365,6 @@ Indias performance in the Asia Cup was quite disappointing and after Super 4 the
 Later tracing the IP address revealed that his page was vandalized from Pakistan. After dropping the catch, the trollers wrote on Arshdeeps Wikipedia page as a match player for Khalistan instead of India. Calling him a traitor also insulted him. Let us tell you that in that match between India and Pakistan also Arshdeep Singh bowled at an economy rate of 7.04 for 27 runs in 3.5 overs with a wicket. Even after missing the catch, Pakistan needed 27 runs. Pakistan needed seven runs in the last over, despite this Arshdeep defended the match for five balls and made Pakistan victory very difficult.
 
 
-
+## Ashantha de Mel
+Ashantha Lakdasa Francis de Mel (born 9 May 1959 in Colombo) is a former Sri Lankan Test and ODI cricketer and selector for the national team. He bowled Sri Lanka's first ball in a Test match. He was one of few Sri Lanka bowlers in the 1980s above medium pace, and he was also said to have the ability to get the ball to swing out.
+In November 2018, he was named as the chairman of Sri Lanka Cricket's National Selection Panel. He previously served in the role in 2012.
