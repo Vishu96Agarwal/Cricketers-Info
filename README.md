@@ -364,5 +364,7 @@ In May 2022, he was selected for the Indian teams home T20 series against South 
 Indias performance in the Asia Cup was quite disappointing and after Super 4 the team had to pull out of the tournament after losing two consecutive matches to Pakistan and Sri Lanka. In a match between India and Pakistan in the same tournament, when the match was very exciting and at its final stage, Arshdeep missed a very simple catch of a Pakistani batsman. After which people started trolling him very badly on social media. The match was won by Pakistan by 5 wickets, after which Arshdeeps Wikipedia page was also tampered with.
 Later tracing the IP address revealed that his page was vandalized from Pakistan. After dropping the catch, the trollers wrote on Arshdeeps Wikipedia page as a match player for Khalistan instead of India. Calling him a traitor also insulted him. Let us tell you that in that match between India and Pakistan also Arshdeep Singh bowled at an economy rate of 7.04 for 27 runs in 3.5 overs with a wicket. Even after missing the catch, Pakistan needed 27 runs. Pakistan needed seven runs in the last over, despite this Arshdeep defended the match for five balls and made Pakistan victory very difficult.
 
+## Quinton De Kock
+Quinton is a South African cricket player where he is also a captain for the South African team. He is the best wicketkeeper and the batsman in the world. He is a professional South African player he is also a part of the Indian Premier League team Mumbai Indians.
 
 
